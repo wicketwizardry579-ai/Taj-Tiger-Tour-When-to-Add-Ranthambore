@@ -1,6 +1,9 @@
 # Taj-Tiger-Tour-When-to-Add-Ranthambore
 Combine Delhi, Agra, Jaipur and Ranthambore for a culture-meets-wildlife Golden Triangle safari itinerary.
 Triangle Plus Tigers: When to Add Ranthambore
+
+https://www.travelosei.com/india/cultural/north/luxury-golden-triangle-tours
+
 TL;DR
 A Taj tiger tour blends India’s greatest hits—Delhi’s energy, the Taj Mahal, Jaipur’s palaces—with two safari days in Ranthambore. Add it between Agra and Jaipur for the smoothest flow.
 Why a Taj Tiger Tour Works Beautifully
@@ -115,6 +118,8 @@ Spa sessions between safaris
 
 
 Private bush dinners
+
+https://www.travelosei.com/india/cultural/north/luxury-golden-triangle-tours
 
 FAQs
 Is Ranthambore safe?
